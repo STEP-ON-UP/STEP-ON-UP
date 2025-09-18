@@ -1,7 +1,5 @@
+<h6><p align="center"> '' STEP ON IN, STEP ON HIM, STEP ON UP !! ''
 
 <p align="center">
-<img width="735" height="567" alt="image" src="https://github.com/user-attachments/assets/d45373db-c18b-4e4d-bd72-bacbee125983" />
+<img width="695" height="390" alt="image" src="https://github.com/user-attachments/assets/24228830-ef27-431d-b414-21396c471274" />
 
-</p>
-
-<h6><p align="center"> '' STEP ON IN, STEP ON HIM, STEP ON UP !! ''

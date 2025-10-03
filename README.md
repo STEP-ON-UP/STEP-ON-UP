@@ -1,5 +1,6 @@
-<h6><p align="center"> '' STEP ON IN, STEP ON HIM, STEP ON UP !! ''
 
-<p align="center">
-<img width="695" height="390" alt="image" src="https://github.com/user-attachments/assets/24228830-ef27-431d-b414-21396c471274" />
+![ezgif-7df3eb70d69d6e](https://github.com/user-attachments/assets/5a4ae588-0498-41b9-a98a-dc28f4e35e0b)
 
+
+
+<h6>got the giggles
